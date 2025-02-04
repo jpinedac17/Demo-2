@@ -11,3 +11,4 @@ callece x2
 
 >>>>>>> ab8d40b (no sabo)
 ayudaaaa
+QUE GUAPOTE CRISTIAN NO TE VI HOY PERO SEGURO ESTAS GUAPOTE 
